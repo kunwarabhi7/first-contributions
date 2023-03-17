@@ -4,7 +4,7 @@
 - [Sowmya S](https://github.com/sowmya-s-26)
 - [JSTNSNE](https://github.com/JSTNSNE)
 - [AkT-01](https://githhub.com/AkT-01)
- [Abhishek Parmar](https://githhub.com/kunwarabhi7)
+ [Abhishek Singh](https://githhub.com/kunwarabhi7)
 - [Alfeu Xerinda](https://githhub.com/Hard-007)
 - [Sai Rahul](https://github.com/Sai3Rahul)
 - [Khushi Saxena](https://github.com/khushi11saxena)
